@@ -12,6 +12,12 @@
 - [Lowe's](https://www.lowes.com/pd/a/5013202991)
 - <img src="https://mobileimages.lowes.com/productimages/f6f3aaa6-7e9d-4945-adf7-bbee7a3a68b9/46360143.jpg" alt="pic" width="200"/>
 
+### Bellevue Grande Prairie 52" 3 Blade Indoor LED Ceiling Fan with Remote Control
+- **238.04**
+- Model:WCFA26281MBK
+- [Build](https://www.build.com/a/s1724257?uid=4078583&searchId=ail7QQmXke)
+- <img src="https://s3.img-b.com/image/private/t_base,c_pad,f_auto,dpr_2,w_680,h_680/product/bellevue/bellevue-wcfa26281mbk-7239801.jpg" alt="pic" width="200"/>
+
 <br>
 <br>
 <br>
