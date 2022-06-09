@@ -7,9 +7,10 @@
 
 <br>
 <br>
+<br>
 
 # **Outdoor**
-## Minka Aire  Seacrest 60-in Coal LED Indoor/Outdoor Smart Propeller Ceiling Fan with Light Remote (3-Blade)
+### Minka Aire  Seacrest 60-in Coal LED Indoor/Outdoor Smart Propeller Ceiling Fan with Light Remote (3-Blade)
 - **$389.95**
 - Item #4063086 Model #84051
 - [Lowe's](https://www.lowes.com/pd/Minka-Aire/5013316985)
