@@ -16,7 +16,7 @@
 <br>
 
 # **Sleeper (corner)**
-### HÄRLANDA (3-sat)
+### HÄRLANDA (3-seat)
 - **$1,849.00**
 - 993.204.70
 - [IKEA](https://www.ikea.com/us/en/p/haerlanda-sleeper-sofa-with-chaise-sporda-dark-gray-s59320472/#content)
