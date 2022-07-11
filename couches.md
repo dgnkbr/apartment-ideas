@@ -23,6 +23,12 @@
 - [IKEA](https://www.ikea.com/us/en/p/finnala-sleeper-sofa-gunnared-medium-gray-s39319078/)
 - <img src="https://www.ikea.com/us/en/images/products/finnala-sleeper-sofa-gunnared-medium-gray__0686085_pe721581_s5.jpg?f=s" alt="pic" width="200">
 
+### VRETSTORP (3-seat)
+- **$899.00**
+- 793.255.10
+- [IKEA](https://www.ikea.com/us/en/p/vretstorp-sleeper-sofa-hallarp-gray-s79325510/)
+- <img src="https://www.ikea.com/us/en/images/products/vretstorp-sleeper-sofa-hallarp-gray__0818760_pe774593_s5.jpg?f=s" alt="pic" width="200">
+
 <br>
 <br>
 <br>
