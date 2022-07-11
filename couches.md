@@ -17,6 +17,12 @@
 - [IKEA](https://www.ikea.com/us/en/p/haerlanda-sofa-sporda-dark-gray-s79320268/)
 - <img src="https://www.ikea.com/us/en/images/products/haerlanda-sofa-sporda-dark-gray__0577289_pe668745_s5.jpg" alt="pic" width="200">
 
+### FINNALA (3-seat)
+- **$1,549.00**
+- 393.190.78
+- [IKEA](https://www.ikea.com/us/en/p/finnala-sleeper-sofa-gunnared-medium-gray-s39319078/)
+- <img src="https://www.ikea.com/us/en/images/products/finnala-sleeper-sofa-gunnared-medium-gray__0686085_pe721581_s5.jpg?f=s" alt="pic" width="200">
+
 <br>
 <br>
 <br>
