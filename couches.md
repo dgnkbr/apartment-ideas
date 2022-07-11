@@ -11,6 +11,12 @@
 - [IKEA](https://www.ikea.com/us/en/p/haerlanda-sleeper-sofa-sporda-dark-gray-s59320373/)
 - <img src="https://www.ikea.com/us/en/images/products/haerlanda-sleeper-sofa-sporda-dark-gray__0621863_pe690097_s5.jpg?f=xl" alt="pic" width="200">
 
+## HÄRLANDA  (3-seat)
+- **$1,049.00**
+- 793.202.68
+- [IKEA](https://www.ikea.com/us/en/p/haerlanda-sofa-sporda-dark-gray-s79320268/)
+- <img src="https://www.ikea.com/us/en/images/products/haerlanda-sofa-sporda-dark-gray__0577289_pe668745_s5.jpg" alt="pic" width="200">
+
 <br>
 <br>
 <br>
